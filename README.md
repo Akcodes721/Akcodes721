@@ -1,4 +1,4 @@
-# Hi there, I'm [Akshay] 👋
+# Hi there, I'm Akshay 👋
 
 ## About Me
 
